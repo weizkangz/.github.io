@@ -11,4 +11,6 @@ In the descriptions from github. We will cross that bridge when we get to it.
 
 We Iz Kangz is about the END of racism and brings DISRUPTIVE history to the front.
 
+The OLD We Iz Kangz website is here: https://www.WeIzKangz,com
+
 
