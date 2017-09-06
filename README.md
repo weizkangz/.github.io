@@ -13,4 +13,5 @@ We Iz Kangz is about the END of racism and brings DISRUPTIVE history to the fron
 
 The OLD We Iz Kangz website is here: https://www.WeIzKangz,com
 
+https://weizkangz.github.io/.github.io/
 
